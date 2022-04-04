@@ -1,0 +1,2 @@
+# cczergtoko
+verusminer zerpool toko
